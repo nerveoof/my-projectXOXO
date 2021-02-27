@@ -1,5 +1,4 @@
-# **Main Character**
-
+# **Main Character** 
 https://www.google.com/search?q=emilia+re+zero+transparent+png&sxsrf=ALeKk00mtpYuDqtl42RqHxWe8g6e4iwF6w:1614044741880&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjl0fab8f7uAhVBj1kKHYsvBjYQ_AUoAXoECBgQAw#imgrc=UihOll-plDnWLM
 
 
